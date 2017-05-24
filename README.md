@@ -1,3 +1,3 @@
 # Singapore-One
 
-Cheap $2 to $10 local Singaporean street foods!
+Cheap $2 to $10 Local Singaporean Street Foods!
